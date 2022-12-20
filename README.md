@@ -1,1 +1,2 @@
-# Donate
+Dogecoin:
+ D9Y18n1XbQNgJJbJx9jn4MDPxv3muF5dvH
