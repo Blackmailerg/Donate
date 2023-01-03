@@ -1,6 +1,7 @@
 
 
 
+![Dogecoin -on-grass-](https://user-images.githubusercontent.com/100047713/210449896-b6d8bdb4-4fc9-420f-b6e5-5e495d5d8128.png)
 
 Dogecoin:
  D9Y18n1XbQNgJJbJx9jn4MDPxv3muF5dvH
@@ -19,7 +20,7 @@ Snap:
 Discord:
  ਪੈਟਰੋਲ ਪੰਪ#2731
  
-Tiktok
+Tiktok:
  https://www.tiktok.com/@cameraman125
  
 Phone:
