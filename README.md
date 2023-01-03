@@ -1,7 +1,6 @@
 
 
 
-![Dogecoin -on-grass-](https://user-images.githubusercontent.com/100047713/210449896-b6d8bdb4-4fc9-420f-b6e5-5e495d5d8128.png)
 
 Dogecoin:
  D9Y18n1XbQNgJJbJx9jn4MDPxv3muF5dvH
@@ -32,3 +31,6 @@ I Message:
 Email:
  Gavinahluwalia@gmail.com
  
+ 
+![Dogecoin -on-grass-](https://user-images.githubusercontent.com/100047713/210449896-b6d8bdb4-4fc9-420f-b6e5-5e495d5d8128.png)
+
