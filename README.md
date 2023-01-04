@@ -22,6 +22,9 @@ Discord:
 Tiktok:
  https://www.tiktok.com/@cameraman125
  
+Youtube:
+ https://www.youtube.com/@yes125_
+ 
 Phone:
  (+1) 9055542882 
  
